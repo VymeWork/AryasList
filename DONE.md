@@ -1,1 +1,2 @@
-Joffrey Baratheon est mort au buffet empoisonné (pas par Arya)
+-Joffrey Baratheon est mort au buffet empoisonné (pas par Arya)
+-Meryn Trant a été éliminé par Arya
